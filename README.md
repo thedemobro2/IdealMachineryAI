@@ -1,5 +1,6 @@
 # thedemobro2.github.io-IdealMachineryAI
 Ideal Machinery AI tool
+https://thedemobro2.github.io/IdealMachineryAI/
 
 ![image](https://github.com/user-attachments/assets/8d4f4f8a-1693-4a57-9e7e-864da50ffcec)
 
