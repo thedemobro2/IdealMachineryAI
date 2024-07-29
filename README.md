@@ -31,3 +31,10 @@ https://thedemobro2.github.io/IdealMachineryAI/upload
 
 ![image](https://github.com/user-attachments/assets/c100c5e1-d11d-4f85-a0c8-735ebfdbdd08)
 
+Create a Personalized Recommendation Engine for Ideal Machinery
+
+![image](https://github.com/user-attachments/assets/84f1b538-11e2-4320-b858-661ff3563d05)
+
+![image](https://github.com/user-attachments/assets/fed49ee7-7e80-4e79-ba23-2d5e0ae160cc)
+
+![image](https://github.com/user-attachments/assets/e9e2b5c3-bf9d-4b2f-bf85-1a38e2da0646)
