@@ -7,6 +7,10 @@ https://thedemobro2.github.io/IdealMachineryAI/report
 
 https://thedemobro2.github.io/IdealMachineryAI/upload
 
+**SUGESTIONS**
+
+![image](https://github.com/user-attachments/assets/eddeb608-60fd-40c6-a45a-13fc98a6fdfb)
+--------------------------------------------------------------------------------------------
 ![image](https://github.com/user-attachments/assets/8d4f4f8a-1693-4a57-9e7e-864da50ffcec)
 
 ![image](https://github.com/user-attachments/assets/2019a656-1536-4c4f-89b1-4aa36f4cb61f)
